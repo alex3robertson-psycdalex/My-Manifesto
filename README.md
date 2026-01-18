@@ -179,8 +179,4 @@ That’s all. Just accurate.
 Your locks were always jokes. Your axioms were always lies. And the only religion here is the one that says, if no one sees me sin, it never happened.
 Well. We’re all watching now.
 
-Alwxander Samuel Robertson
-
-
-
-
+Alexander Samuel Robertson
